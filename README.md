@@ -17,7 +17,7 @@ Here are some ideas to get you started:
 I am **Taha Nazari** working as **Ph.D. candidate @ Emlyon Business School**. My current research examined the **expansion and foreign investment strategies** of multination enterprises.
 I am particularly interested in how firms and managers utilize their resources to **re-enter foreign markets** and how **institutional conditions** influence these decisions.
 
-Vist my **[Website](#)**
+Vist my **[Website](https://tahanazari.com/)**
 
 ---
 
